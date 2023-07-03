@@ -1,1 +1,0 @@
-# cnsa-picnic-advertisement
